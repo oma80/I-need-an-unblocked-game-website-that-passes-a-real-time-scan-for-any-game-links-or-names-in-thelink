@@ -4,3 +4,5 @@ Here are 2 examples that I have.
 "trinculo54.github.io/Boxel-rebound-hope/Never/"
 
 The blocker that is used is called Hapara Highlights. It has a real-time scanner that checks the link for any game names or suspicous names.
+
+Add me on discord to send me the links Ennie#4547 or message me.
